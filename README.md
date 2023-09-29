@@ -1,2 +1,10 @@
 # i-know-u
-mediamates I already know / have contact with.
+# mediamates I already know / have contact with.
+
+METALOCALYPSE; PICKLES THE DRUMMER
+
+FNAF; ELIZABETH AFTON, GREGORY, JEREMY FITZGERALD (not blueycapsules)
+
+SOUTH PARK; CRAIG TUCKER, TWEEK TWEAK, PETE
+
+A WAY OUT; VINCENT MORETTI
